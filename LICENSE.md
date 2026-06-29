@@ -1,4 +1,4 @@
-# 
+# Gratuito TurboTax complementos para Mac OS | Leve TurboTax complementos para PC Windows. Com acesso offline e reconhecimento OCR — otimizado para máximo desempenho em cada plataforma.
 
 
 
